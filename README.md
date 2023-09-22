@@ -1,0 +1,2 @@
+# G
+inf gotovo
